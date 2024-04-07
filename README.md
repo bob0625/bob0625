@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @bob0625
+- 👀 I’m interested in ... pipe bombs
+- 🌱 I’m currently learning ... how to make pipe bpmbs
+- 💞️ I’m looking to collaborate on ... pipe bombs
+- 📫 How to reach me ... spam my discord
+- 😄 Pronouns: ... this that
+- ⚡ Fun fact: ... 11+11 and 10+10 = the same thing
